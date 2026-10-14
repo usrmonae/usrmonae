@@ -1,1 +1,1 @@
-[monae](https://datascienceportfol.io/monae) · _electrical and computer engineering_
+[monae](https://datascienceportfol.io/monae)  ·  electrical and computer engineering
